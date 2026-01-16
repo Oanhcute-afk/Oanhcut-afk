@@ -1,4 +1,4 @@
-# Oanhcut-afk
+# Oanhcute-afk
 ### 🌼🐝 Hi !
 
 <pre>
